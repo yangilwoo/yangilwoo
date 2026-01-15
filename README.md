@@ -6,7 +6,7 @@
 
 <div align="center">
   
-  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=2596be&label=♱&base=1663)</a>
+  <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=e6c36b&label=♱&base=1663)</a>
 
 <div align="center">
 
