@@ -8,7 +8,8 @@
   
   <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=e6c36b&label=♱&base=1663)</a> 
 
-im not fixing this bro
+extremely nonsharing yang ilwoo yume 
+ok bye tats it
 ‎‎‎‎‎‎
 
 
