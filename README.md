@@ -10,7 +10,9 @@
 
 extremely nonsharing yang ilwoo yume
 ok bye tats it
-‎‎‎‎wIll make lovemail soom. Ok?‎‎
+‎‎‎‎
+<div align="center">
+wIll make lovemail soom. Ok?‎‎
 
 
 
