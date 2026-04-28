@@ -12,7 +12,8 @@ extremely nonsharing yang ilwoo yume
 ok bye tats it
 ‎‎‎‎
 <div align="center">
-wIll make lovemail soom. Ok?‎‎
+
+  [lovemail](https://rentry.co/ilwoo_)‎‎
 
 
 
