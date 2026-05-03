@@ -13,7 +13,7 @@ ok bye tats it
 ‎‎‎‎
 <div align="center">
 
-  [lovemail](https://rentry.co/ilwoo_)‎‎
+  [lovemail](https://rentry.co/ilwoo_)ㅤ [2nd main](https://github.com/xikerz)‎
 
 
 
