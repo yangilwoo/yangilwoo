@@ -8,7 +8,7 @@
   
   <a href="">![](https://komarev.com/ghpvc/?username=YEON-SKYIAR&color=e6c36b&label=♱&base=1663)</a> 
 
-extremely nonsharing yang ilwoo and paratise/jock ivan yume
+extremely nonsharing yang ilwoo, paratise/jock ivan, and zayne yume
 ok bye tats it
 ‎‎‎‎
 <div align="center">
